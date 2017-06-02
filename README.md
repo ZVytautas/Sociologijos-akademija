@@ -1,1 +1,1 @@
-# Sociologijos-akademija
+# sociologijos-akademija
